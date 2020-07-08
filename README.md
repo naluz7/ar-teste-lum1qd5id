@@ -1,1 +1,0 @@
-# ar-teste-lum1qd5id
